@@ -1,2 +1,2 @@
 # Gorilla-Tag-Booters
-All MAde By Interfrost
+All Made By Interfrost
